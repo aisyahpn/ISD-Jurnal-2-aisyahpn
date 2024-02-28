@@ -1,0 +1,4 @@
+NAMA : Aisyah Putri Nuraini
+KELAS : D3IF47 - 04
+NIM : 607062300033
+JURNAL : 2
